@@ -1,1 +1,0 @@
-# jinix.github.io
